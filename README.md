@@ -12,7 +12,7 @@ Also you can protect your own codes with FUD Crypter 2025. You can get FUD Resul
 
 [Join Telegram Channel](https://t.me/+HzAaarZkrPZhYzY0) ✅
 
-![Alt text](https://venom.software/wp-content/uploads/2023/09/wd-killer.png)
+![Alt text](https://venom.software/wp-content/uploads/2023/09/wd-killer-e1755620815171.png)
 
 **Runtime FUD Results**
 
